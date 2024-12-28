@@ -1,0 +1,1 @@
+# Ease-of-Living-Index-Eol-Calculator
